@@ -1,2 +1,2 @@
 # eserciziodigruppo13nov
-Pietro Simone Sara Alessandro
+Pietro Simone F. Sara Alessandro
